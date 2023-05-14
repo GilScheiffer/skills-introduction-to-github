@@ -1,0 +1,2 @@
+# Bem vindo!
+Olá! Sou um estudante de Sistemas de Informação apaixonado por matemática e física. Além disso, possuo um nível intermediário de inglês e me dedico a fazer cursos complementares de programação por conta própria. Tenho um perfil autodidata e sou hábil em solucionar problemas de forma criativa. Sou muito motivado e estou sempre buscando aprender coisas novas e expandir meus conhecimentos. Estou ansioso para contribuir para projetos desafiadores e colaborar em equipes multidisciplinares.
